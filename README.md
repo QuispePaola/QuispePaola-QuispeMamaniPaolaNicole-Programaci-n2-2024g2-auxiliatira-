@@ -1,0 +1,1 @@
+# QuispePaola-QuispeMamaniPaolaNicole-Programaci-n2-2024g2-auxiliatira-
